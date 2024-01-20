@@ -8,7 +8,7 @@ I am an avid and passionate individual who finds immense joy in dedicating exten
 
 🤝 Join me on this exciting journey of exploration and innovation as we navigate the dynamic world of technology together.
 
-📬 **rajabaliostad@gmail.com**
+✉️ **rajabaliostad@gmail.com**
 
 
 
