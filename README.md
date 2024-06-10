@@ -13,4 +13,4 @@ I am an avid and passionate individual who finds immense joy in dedicating exten
 
 
 
-Let's create, learn, and inspire! ❤️
+Let's create, learn and inspire! ❤️
